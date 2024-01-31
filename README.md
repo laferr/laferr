@@ -1,5 +1,5 @@
 
-Ph.D Candidate, Jehyun Kim (Laferr)
+Ph.D Jehyun Kim (Laferr)
 
 Major in Computer Science
 Intrested in XR, Metaverse, A.I, Media Art
