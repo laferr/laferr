@@ -13,4 +13,4 @@ dino46@gachon.ac.kr
 
 
 -Portfolio
-https://laferr.notion.site
+[https://laferr.notion.site](https://laferr.notion.site/laferr/4122b1f57ceb48e18a4f3a24777dc605)https://laferr.notion.site/laferr/4122b1f57ceb48e18a4f3a24777dc605
