@@ -13,4 +13,4 @@ dino46@gachon.ac.kr
 
 
 -Portfolio
-https://profuse-windshield-6fb.notion.site/4122b1f57ceb48e18a4f3a24777dc605?pvs=74
+https://laferr.notion.site
